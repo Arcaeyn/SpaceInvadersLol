@@ -1,2 +1,6 @@
 # SpaceInvadersLol
 useless app lol haha
+
+
+
+YOU HAVE TO RUNE THE SPACE INVADERS COPY APPLICATION FOR IT TO WORK 
